@@ -1,4 +1,4 @@
 # et-anet-dikt-om-im
-et dikt om im som om de var to personer
+et dikt om IM
 hmm yes
 bra jobba
